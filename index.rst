@@ -2,8 +2,6 @@ FREE CASH APP MONEY 2021 GENERATOR NO HUMAN VERIFICATION 2021
 ~~~~~~~~~~~~
  Cash App Money Glitch Hack Generator. Using the latest cash app hack 2021 you can generate unlimited amount of free cash app money! use the latest cash app hack 2020 to generate unlimited amounts of cash app free money. This tool is confirmed working from our dev team and you can generate up to 1000$ cash app money every day for free. If you want to get the cash app generator glitch just follow the link below to access it.
  
- `CLICK HERE FREE CASH APP $750 NOW.
-  <https://codegenerators.xyz/cashapp>`_
 
   `CLICK HERE FREE CASH APP $750 NOW.
   <https://codegenerators.xyz/cashapp>`_
